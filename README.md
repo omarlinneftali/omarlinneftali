@@ -1,0 +1,1 @@
+Desarrollador de software entusiasta y orientado a resultados. Con habilidades en tecnologías como .Net Framework (C #), JavaScript, React.Js, SQL Server y otras tecnologías de desarrollo. Graduado en UNAPEC como Ingeniero de Software con los más altos honores(SUMMA CUM LAUDE).
